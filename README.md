@@ -12,7 +12,8 @@
 ---
 
 ### 2. Collection
-<img width="1534" height="956" alt="image" src="https://github.com/user-attachments/assets/bd115877-9c6c-42cc-ae92-f802ce1df387" />
+<img width="1535" height="959" alt="image" src="https://github.com/user-attachments/assets/37522938-3ca7-40c9-89bb-5d36b6e3a01b" />
+
 
 ---
 
